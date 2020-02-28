@@ -1,0 +1,1 @@
+<span style="color: #FFFFFF"><span style="font-weight: 50"><p> All rights protected under ABV University @ 2019 </p></span></span>
